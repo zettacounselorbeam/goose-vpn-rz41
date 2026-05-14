@@ -1,4 +1,4 @@
-
+Enhance your Goose VPN experience with professional Goose VPN Module | IKEv2-support + OpenVPN-support, the #1 module. Includes IKEv2-support and OpenVPN-support for a safer and
 
 
 
